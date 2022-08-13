@@ -1,5 +1,5 @@
-# Magento Upgrade Service
-[***Magento Upgrade Service***](https://meetanshi.com/magento-upgrade-service.html)from Meetanshi at feasible rates to improve your online store and make the most out of it!
+# Hire Shopify Developer
+[***Hire Shopify Developer***](https://meetanshi.com/hire-shopify-developer.html)from Meetanshi at feasible rates to improve your online store and make the most out of it!
 
 Shopify is one of the leading service providers that are used by a wide range of CMS platforms. It is a simple and easy-to-use interface.
 
