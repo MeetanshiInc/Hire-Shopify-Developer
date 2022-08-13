@@ -31,4 +31,4 @@ However, such packages come with very less functionalities and features. You can
 * Custom app development
 * B2B Marketplace Integration
 
-For more information, visit: [https://meetanshi.com/hire-shopify-developer.html](https://meetanshi.com/hire-shopify-developer.html)
+For more information, visit: ***[https://meetanshi.com/hire-shopify-developer.html](https://meetanshi.com/hire-shopify-developer.html)***
